@@ -1,0 +1,1 @@
+All this files are only HTML or CSS formate only this is only an frentend application and it is in developing stage while upoading kindly understand while going through it and contact details will be give youcan contact through our social media given- thank you
